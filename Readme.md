@@ -1,0 +1,1 @@
+# This is a collection of ski slope and ski resort maps
